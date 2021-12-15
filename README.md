@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tarunhackkrlega
 - 👀 I’m interested in yaar
 - 🌱 I’m currently learning biology
-- 💞️ I’m looking to collaborate on sluts
+- 💞️ I’m looking to collaborate with sluts
 - 📫 How to reach me through sluts
 
 <!---
